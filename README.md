@@ -1,0 +1,2 @@
+# MemelAli
+STürküzMilletAdanalıyıkAllah
